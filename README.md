@@ -1,4 +1,4 @@
- ### BEM VINDOS AO MEU PERFIL 💙
+ ### BEM VINDOS AO MEU PERFIL 🤍
  
  Meu Nome é Jonathan Patrick
 
